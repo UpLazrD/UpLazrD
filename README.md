@@ -1,1 +1,1 @@
-<video src="'https://psv4.userapi.com/c812702/u439427725/docs/d3/bbd1f87450b9/video.mp4" width=180/>
+![prekol](https://github.com/UpLazrD/UpLazrD/assets/121457612/fc7d1558-04b6-4878-bc5d-f9e6dabf9c66)
